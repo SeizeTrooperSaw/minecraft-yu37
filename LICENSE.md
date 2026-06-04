@@ -1,4 +1,4 @@
-#  
+#  survive lava for brainrots Scripts top is the best survive lava for brainrots Script, featuring undetectable and one-hit kill. Safe and powerful for
 
 
 
